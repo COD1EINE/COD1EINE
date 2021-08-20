@@ -1,4 +1,5 @@
 ### Hi there 👋
 
 i'm adrian
--16 yr old skid
+aspiring dev
+hmu if u wanna collab cancaze#3000
